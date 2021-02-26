@@ -1,1 +1,1 @@
-# DestrollerXD.github.io main page for other proects
+# DestrollerXD.github.io main page for other projects
